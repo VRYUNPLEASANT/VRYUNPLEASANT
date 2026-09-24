@@ -1,16 +1,18 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**VRYUNPLEASANT/VRYUNPLEASANT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+$\color{#ffffff} daniel $
+$\color{#ffffff} / $
+$\color{#ffffff} danny $
 
-Here are some ideas to get you started:
+<img src= https://i.pinimg.com/1200x/f5/9e/3e/f59e3e1b5c955baad042bd78480d3ef3.jpg width=300 height=250>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+`7teen` ,, `he,,him`
+- - -
+im often offtab on pt, so *PLEASE* **W2I** !!
+<br>
+**C*H** is ok
+<br>
+im awkward and usually dont talk for long
+- - -
+<img src= https://i.pinimg.com/736x/b5/8e/13/b58e130587028cbd9836d7fa5a8e7263.jpg width=35 height=35>
