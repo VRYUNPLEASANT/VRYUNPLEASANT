@@ -4,7 +4,8 @@ $\color{#ffffff} daniel $
 $\color{#ffffff} / $
 $\color{#ffffff} danny $
 
-<img src= https://i.pinimg.com/1200x/f5/9e/3e/f59e3e1b5c955baad042bd78480d3ef3.jpg width=300 height=250>
+<img width="508" height="435" alt="meow" src="https://github.com/user-attachments/assets/35ade5c0-9535-4be8-ae8a-df3c758f3e78" />
+
 
 
 `7teen` ,, `he,,him`
