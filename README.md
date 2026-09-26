@@ -3,9 +3,9 @@
 
 <img width="335" height="330" alt="meow" src="https://github.com/user-attachments/assets/35ade5c0-9535-4be8-ae8a-df3c758f3e78" />
 
-$\color{#ffffff} daniel $
-$\color{#ffffff} / $
-$\color{#ffffff} danny $
+daniel
+/ 
+danny
 
 `7teen` ,, `he,,him`
 - - -
