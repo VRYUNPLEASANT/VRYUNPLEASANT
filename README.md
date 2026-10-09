@@ -1,7 +1,8 @@
 <div align="center">
 
 
-<img width="335" height="330" alt="meow" src="https://github.com/user-attachments/assets/35ade5c0-9535-4be8-ae8a-df3c758f3e78" />
+<img width="375" height="300" alt="image" src="https://github.com/user-attachments/assets/196fb97b-825c-45aa-8aad-91cbcfde60d2" />
+
 
 daniel
 / 
@@ -17,4 +18,5 @@ im awkward and usually dont talk for long but i do really like talking to people
 <br>
 esp people who have the same interests as me....
 - - -
-<img src= https://i.pinimg.com/736x/b5/8e/13/b58e130587028cbd9836d7fa5a8e7263.jpg width=35 height=35>
+<img width="357" height="31" alt="image" src="https://github.com/user-attachments/assets/fd7e3e12-a23c-4a2d-a632-8759e1b5eceb" />
+
