@@ -20,8 +20,9 @@ esp people who have the same interests as me....
 - - -
 <img width="357" height="31" alt="image" src="https://github.com/user-attachments/assets/fd7e3e12-a23c-4a2d-a632-8759e1b5eceb" />
 <br>
-<img width="400" height="35" alt="Screenshot 2026-10-09 112817" src="https://github.com/user-attachments/assets/baa8492c-eff3-4b9c-b556-f2c3126f8952" />
+<img width="402" height="27" alt="Screenshot 2026-10-09 112817" src="https://github.com/user-attachments/assets/8b3ed3db-a12f-4db1-ab7c-639b078f26e5" />
 <br>
-<img width="357" height="31" alt="Screenshot 2026-10-12 223406" src="https://github.com/user-attachments/assets/f78d1b0a-3862-4c50-b858-759359e629fd" />
+<img width="382" height="20" alt="Screenshot 2026-10-12 223406" src="https://github.com/user-attachments/assets/61d9f7a1-5ed2-4b31-98ae-d0b37ce5a0be" />
 <br>
+<img width="292" height="27" alt="image" src="https://github.com/user-attachments/assets/39a4a31f-dbd3-4ea7-a968-2d6733de0fde" />
 
