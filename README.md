@@ -19,8 +19,8 @@ im awkwrd and usually dont talk for long but i do really like talking to people
 esp people who have the same interests as me....
 <br>
 i swear im not rude... :cry:
-<br>
 
+<br> [hiyesimtestingsomething](https://walloftext.co/danland)
 
 - - -
 <img width="357" height="31" alt="image" src="https://github.com/user-attachments/assets/fd7e3e12-a23c-4a2d-a632-8759e1b5eceb" />
