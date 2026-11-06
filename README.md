@@ -21,7 +21,7 @@ esp people who have the same interests as me....
 i swear im not rude... :cry:
 <br>
 
-[atabook](monkeeingaround.atabook.org)   [OLDstraw](thatonedudez.straw.page)
+
 - - -
 <img width="357" height="31" alt="image" src="https://github.com/user-attachments/assets/fd7e3e12-a23c-4a2d-a632-8759e1b5eceb" />
 <br>
